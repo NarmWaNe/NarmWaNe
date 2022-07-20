@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Nene
+- 👀 My Contract: 093-1816131
+- 🌱 I'm Software Engineering from Mae Fah Luang Unversity. I have tested designing/developing websites, and applications and running a small game server. And I like to study new things. I didn't know before because we are not stationary. I have a goal in my career that is interesting and exciting in my life.
+- 📫 6231305019@lamduan.mfu.ac.th
